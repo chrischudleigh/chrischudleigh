@@ -1,4 +1,4 @@
 ### Hi there 👋
 
-I am a web designer/developer in Brisbane.
+I am a web designer/developer.
 
